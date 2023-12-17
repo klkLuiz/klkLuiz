@@ -5,6 +5,4 @@
 - 📫 Email me at larohio2018@gmail.com, I might not always see your emails.
 
 
-klkLuiz/klkLuiz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
