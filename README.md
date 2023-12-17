@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning art appreciation.
 - 💞️ I’m looking to collaborate on a manga that I am going to launch.
 - 📫 Email me at larohio2018@gmail.com, I might not always see your emails.
+- Do not take my profile seriously I made it just to connect it to my Epic Games account.
 
 
 
